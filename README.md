@@ -1,1 +1,1 @@
-# Aquajet-Social
+Images for AquaJet Solutions social media posts.
